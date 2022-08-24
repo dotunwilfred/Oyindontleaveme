@@ -8,3 +8,4 @@ the more i let go the closer it stick...
 what do i do when heart broken? i just fucking turn to an unlearned poet
 scribbling scrabbling, and sadly blabbering
 love na drug!!!
+I don talk am before
